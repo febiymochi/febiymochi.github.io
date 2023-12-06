@@ -8,8 +8,9 @@ Phoebe Gaiyle A. Santillas
 General surgeons are doctors who specialize in surgical procedures. Surgery is any procedure that alters body tissues to diagnose or treat a medical condition. A general surgeon is part of a surgical team that also includes an anesthesiologist, nurses, and surgical technicians. You’ll talk to the surgeon about the procedure before surgery.
 
 ![Surgeon](https://medical.rossu.edu/sites/g/files/krcnkv261/files/styles/atge_3_2_crop_md/public/2022-04/General-Surgery.jpg?h=f9d06ff2&itok=4reF5_6o)
+
 ---
-**WHAT DOES A GENERAL SURGEON DO?? 'o'**
+**WHAT DOES A GENERAL SURGEON DO?? :O**
 
 **A general surgeon has specialized knowledge of the entire surgical process, from the initial evaluation through preparation, procedure, and post-operative management. A general surgeon understands all nine basic areas of surgery, which are:**
 
@@ -48,6 +49,7 @@ General surgeons are doctors who specialize in surgical procedures. Surgery is a
 - Infections and antibiotics
 
 **Because a general surgeon treats a wide variety of people and conditions, they have to meet unique needs.**
+
 ---
 **EDUCATION AND TRAINING o_o**
 
@@ -61,16 +63,17 @@ General surgeons are doctors who specialize in surgical procedures. Surgery is a
 
 ### To know more about doctors click the link below:
 [What Is a General Surgeon??](https://www.webmd.com/a-to-z-guides/what-is-general-surgeon)
+
 ---
 **Want to know more about surgeons? Watch the video below ^-^**
 <iframe width="560" height="315" src="https://www.youtube.com/embed/nKP1v_ZXkbg?si=YsEy8HtgxNBUV0Vs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 ---
 
 **Want to know more? Click the link below ^-^**
-
 (the link will direct you to a youtube account)
 
 [Med School Insiders](https://www.youtube.com/@MedSchoolInsiders)
+
 ---
 **While reading, you may want to listen to a song ^-^**
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/artist/5069JTmv5ZDyPeZaCCXiCg?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
