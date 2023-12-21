@@ -77,4 +77,12 @@ General surgeons are doctors who specialize in surgical procedures. Surgery is a
 
 ---
 **While reading, you may want to listen to a song ^-^**
+
+**WAVE TO EARTH**
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/artist/5069JTmv5ZDyPeZaCCXiCg?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+---
+
+**Fuchsiang Pag-Ibig (ALBUM) by Silent Sanctuary**
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/6MC4GloSqK2sSTLeYImDV3?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
